@@ -1,4 +1,4 @@
-##### بِسْمِ اللّٰهِ الرَّحْمٰنِ الرَّحِيْمِ
+### بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ
 ##### In the Name of Allah—the Most Compassionate, Most Merciful.
 ##### Hi there 👋
 
