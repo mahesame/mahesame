@@ -1,4 +1,4 @@
-# Al Quran: Surah Al Ikhlas
+## Al Quran: Surah Al Ikhlas
 ### بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ
 ##### In the Name of Allah—the Most Compassionate, Most Merciful.
 ##### Dengan nama Allah Yang Maha Pengasih, Maha Penyayang.
