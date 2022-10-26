@@ -2,7 +2,6 @@
 ### وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ
 ##### I did not create jinn and humans except to worship Me.
 ##### Aku tidak menciptakan jin dan manusia melainkan agar mereka beribadah kepada-Ku.
-
 \
 \
 \
